@@ -10,7 +10,7 @@ My first repository
 - High production value and excellent acting performances.
 - Explores complex moral issues and the consequences of choices.
  
- Favorite Episode
+ Favorite Game
  
- My favorite episode is "Ozymandias" (Season 5, Episode 14). It is widely regarded as one of the greatest television episodes ever made.
+ My favorite game is "Chess". Due to its tactics and gameplay, this hones the skills of a chess player which to be more precise and accurate in terms of calculation, the varieties of opening which will be the advantages of each gameplay.
 
